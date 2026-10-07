@@ -1,0 +1,2 @@
+# premium-box-pleat-001-box-pleat-grid-collapse-fold
+Tired of wrestling with messy craft project layouts and losing track of your box-pleat designs? The Box Pleat Grid &amp; Collapse Fold Craft Studio transforms how you organize, visualize, and manage every fold—giving you a professional workspace inside Notion.  This isn't just another template—it's a purpose-built system designed specifically for box-p
